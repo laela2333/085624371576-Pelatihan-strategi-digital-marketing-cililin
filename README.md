@@ -5,4 +5,6 @@ Dalam berbagai seminar dan pelatihan, Coach Faisal menekankan pentingnya strateg
 
 Tidak hanya memberikan teori, Coach Faisal juga menghadirkan sesi praktik dan studi kasus bisnis lokal sehingga peserta dapat langsung memahami cara menerapkan strategi digital marketing pada bisnis masing-masing. Dari hasil pelatihan ini, banyak pelaku usaha di Kabupaten Bandung Barat cililin yang kini berhasil membangun eksistensi online yang kuat dan meningkatkan omset mereka. Bagi UMKM dan bisnis di Bandung Barat yang ingin maju dan berkembang, mengikuti pelatihan digital marketing bersama Coach Faisal adalah langkah yang tepat untuk mengoptimalkan potensi bisnis di era digital.
 https://marketingcililin.blogspot.com/
+https://issuu.com/laela123/docs/
+
 
